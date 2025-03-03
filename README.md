@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Sammy20RKL
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning at kisii university
-- 💞️ I’m looking to collaborate on developers
+- 💞️ I’m looking to collaborate with developers  over the world
 - 📫 How to reach me email
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
